@@ -29,6 +29,10 @@
 
 ---
 
+[The Hero In Us All 🐲 ⚡| NewRetroWave Mixtape](https://www.youtube.com/watch?v=Up8a13j-lqA)
+
+---
+
 [Elysium | 80's Synthwave Mix](https://www.youtube.com/watch?v=yKS3R5Kf4Pk)
 
 ---
