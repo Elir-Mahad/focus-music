@@ -3,16 +3,19 @@
 
 ---
 
-[The 80's Dream Synthwave music](https://www.youtube.com/watch?v=aP6ykG2yK8g)
+[The 80's Dream Synthwave music ](https://www.youtube.com/watch?v=aP6ykG2yK8g)
+`3 hours`
 
 ---
 
 [Cyber dream Chillwave - Synthwave Mix](https://www.youtube.com/watch?v=yhCuCqJbOVE)
+ `2 hours`
 - Jasper De Ceuster - Flare https://soundcloud.com/de-ceuster-jasper
 
 ---
 
 [2 Hour Synthwave MIX](https://www.youtube.com/watch?v=g6hY7dB54bc)
+`2 hours`
 -  Sentimental - 10:40
 - New Beginnings - 18:15
 - Starlink - 35:20
@@ -24,20 +27,24 @@
 ---
 
 [Synthwave - Workout Hyper Mix](https://www.youtube.com/watch?v=hcJ9OKKWSG4)
+`7 hours 13 min`
 - Dust, by M O O N 
 - GTTOD (GTTOD)
 
 ---
 
 [The Hero In Us All 🐲 ⚡| NewRetroWave Mixtape](https://www.youtube.com/watch?v=Up8a13j-lqA)
+`1 hour 18 min`
 
 ---
 
 [Elysium | 80's Synthwave Mix](https://www.youtube.com/watch?v=yKS3R5Kf4Pk)
+`1 hour 22 min`
 
 ---
 
 [ Retronights- A NewRetroWave Mix](https://www.youtube.com/watch?v=OwWpbY4YuRo)
+`1 hour 22 min`
 
 ---
 
